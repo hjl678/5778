@@ -27,4 +27,4 @@
 为了让你能够第一时间观看到最新的日本AV影片，这些平台都会定期更新影片库。无论是新晋女优的作品，还是大热影片的重播，你都能在平台上找到最全、最新的资源，享受更新迅速的娱乐体验。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hjl678/5778 ）</span>
